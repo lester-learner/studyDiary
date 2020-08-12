@@ -23,9 +23,35 @@
 >- **unrivalled opportunity:** *matchless/ one and only*
 >- **suffer from**
 >- **be guaranteed to do**
+>- **hang out:** *take a walk*
+>- **passionate** *adj. more/most passionate*
+>- **local field**
+>- **a rural area of the UK**
+>- **Tai Chi class**
+>- **upon a hilltop at sunrise**
+>- **breathtaking** *tremendous/ spectacular/ striking*
+>- **this culture deepens by leaps and bounds**
+>- **friendly advisor**
+>- **registration office**
+>- **up-to-date**
+>- **various documents**
+>- **recodes**
+>- **blockhead**
+>- **act as intermediary:** *medium/ middle*
+>- **security is an absolute must**
+>- **confirm receipt**
+>- **birth certificate**
+>- **bank statement**
+>- **debit:** *debited v. an accounting entry acknowledging sums that are owing*
+>- **be patient with**
+>- **additional charges**
+>- **carry out/ on**
+>- **meticulous screening process**
 ---
 
 ### **mishear, misread or incomprehension sentences**
 >- This organisation prides itself on matching tens of thousands of host families with guests every single year,  allowing travellers to discover a country's culture in a way like no other
 >- Some people will find it difficult to adapt to the new country, with many enduring what is known as 'culture shock' 
 >- Friends are guaranteed to help you feel more integrated as part of the local society
+>- Connection operates a meticulous screening process, and all applicants will undergo an interview in our head office in London
+>- You will receive a decision in the post
