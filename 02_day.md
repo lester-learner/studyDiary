@@ -47,11 +47,25 @@
 >- **additional charges**
 >- **carry out/ on**
 >- **meticulous screening process**
+>- **facilitates homestays all over the globe**
 ---
 
 ### **mishear, misread or incomprehension sentences**
->- This organisation prides itself on matching tens of thousands of host families with guests every single year,  allowing travellers to discover a country's culture in a way like no other
->- Some people will find it difficult to adapt to the new country, with many enduring what is known as 'culture shock' 
->- Friends are guaranteed to help you feel more integrated as part of the local society
->- Connection operates a meticulous screening process, and all applicants will undergo an interview in our head office in London
->- You will receive a decision in the post
+>- This organisation prides itself on matching tens of thousands of host families with guests every single year,  allowing travellers to discover a country's culture in a way like no other.
+>- Some people will find it difficult to adapt to the new country, with many enduring what is known as 'culture shock' .
+>- Friends are guaranteed to help you feel more integrated as part of the local society.
+>- Connection operates a meticulous screening process, and all applicants will undergo an interview in our head.office in London.
+>- You will receive a decision in the post.
+
+### **beautiful sentences**
+>- The homestay experience is particularly popular with university exchange students looking for a more genuine insight into their country of choice, and an unrivalled opportunity to develop their language skills.
+>- The homestay experience is truly unique and once-in-a-lifetime, and one that you will likely remember for the rest of your lives.
+>- Go out and make as many friends as possible, no matter how difficult you may find it.
+>- Friends are guaranteed to help you feel more integrated as aprt of the local society, and show you some great places to hang out.
+>- They have found discussing their hobbies and other interests with their host families is the best way to overcome any barriers, since you are more than likely to find something you share in common.
+>- Develop a very close and almost familial relationship.
+>- You will find your understanding of the people around you and their culture deepens by leaps and bounds, and you will soon become one of the locals. 
+>- We would strongly advise that you remain in close contact with the registration office, which will send you several emails keeping you up-to-date with potential matches in your country of choice.
+>- Ensure that you sign the back of each photo.
+>- If you haven't received any acknowledgement confirming receipt of these documents from us within seven working days.
+>- All applicants will undergo an interview in our head office in London, with exceptions made in extreme circumstances.
