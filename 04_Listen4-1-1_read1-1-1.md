@@ -29,7 +29,7 @@
 >- **magnetism & magnet & magnetic & be magnetized by & magnetisation**
 >- **eminent & prominent & excellent & outstanding**
 >- **accredited & accreditation & accredit**
->- **physician & physic & physiology & physical**
+>- **physician & physic & physiology & physical & physics**
 >- **the court of Elizabeth**
 >- **prior to & predated**
 >- **amber & jet**
