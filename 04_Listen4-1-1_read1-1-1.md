@@ -56,7 +56,7 @@
     >   - *speculative & speculation & speculator & speculativeness*
         >   - *guess & venture*
 >- **major seafaring nation**
->- **yannk out**
+>- **yank out**
 >- **ingenious experiments**
     >   - *ingeniously adv. & ingenuity & ingeniousness*
 >- **coin v. n.**
@@ -71,7 +71,7 @@
 >- **demonstrated**
 >- **orbit**
 >- **equidistant**
->- **quintessential**
+>- **quintessential & quintessence**
 >- **spin on**
 >- **be aligned with**
 >- **liken**
@@ -88,3 +88,7 @@
 >- **deductive**
     >   - *deducible adj. & deduct deduce v. & deduction*
 >- **authoritative opinion**
+>- **interfere**
+>- **garlic**
+>- **laid the very foundation for modern science**
+>- **helmsman**
