@@ -44,21 +44,14 @@
 ---
 
 >- **musicality**
-
 >- **vocal course**
 >   - *on the course*
-
 >- **way over our budget**
-
 >- **different instruments**
-
 >- **under professional guidance**
-
 >- **eager to**
 >   - *eagerness n. & eagerly adv.*
-
 >- **continental**
-
 >- **raging out of control**
 
 >- **great rivers dying to a trickle**
